@@ -1,2 +1,3 @@
 # 1v1loluncv2
-du``
+**only developed for linktree.com/lebronlinks**
+
